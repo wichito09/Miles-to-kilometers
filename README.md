@@ -19,3 +19,17 @@ ljcastroluna1@gmail.com
 
 ### or through the discord
 coming soon!
+
+## Credits!
+
+I was watching this video 
+
+https://youtu.be/mop6g-c5HEY?si=ZKzVn8vg0QQdQwo5
+
+> watch it allllll
+
+it may seem long but 18 hours isn't that much 😁
+
+but thats the video I used to make this application. Subscribe, give a like, and hype the video up, making an 18 hour long video isn't easy so support him any way you can!
+
+# End of readme
